@@ -23,3 +23,5 @@ You can clone this in your IDE to explore More
 
 For any Query Mail me at  : zadfiyamilan112@gmail.com
 
+
+Note : I have just uses images and information as a Learning purpose Only .All copyrights related to image and info is reside with Original Owner .
